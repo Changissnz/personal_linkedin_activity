@@ -352,5 +352,17 @@ I'll let disadvantaged people work that white-collar job because they need it mo
 
 It's like the concept of the empty cup. There is very little a charitable person would be able to give. Why must charity 
 and beggars be a thing if our leaders made proper use of human resources? Could it be that charities compensate for the 
-shortcomings of beggars, and these shortcomings are actually sins?  
+shortcomings of beggars, and these shortcomings are actually sins? If so, would that not be the most convenient thing for 
+religious despots to take advantage of? Questions abound. 
+
+---------------------------------------------------------------------------------------------------------------------------------
+
+![alt text](images/Screenshot_2026-02-23_103230.png)  
+
+People like this guy are a big contributing factor to why I was stuck in a bind. I decided against joining the military. 
+Defense corporations don't want to hire me. People like this guy take in all the money. The mob cuts in front of me, 
+in the waiting line. 
+
+I'm no longer stuck in a bind because I believe I see people for what they are...intelligent creatures but creatures 
+flawed by the grace and judgment of God.  
 

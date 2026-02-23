@@ -239,3 +239,27 @@ these people. Big whoop. So what?
 He sure doesn't sound like a Marxist-Leninist. He is advocating for right to ownership. But his cynicism of people's motives. 
 Definitely not a positive outlook on the state of civilization in the developed world. 
 
+---------------------------------------------------------------------------------------------------------------------------------
+
+![alt text](images/Screenshot_2026-02-23_073951.png) 
+
+![alt text](images/Screenshot_2026-02-23_074005.png)
+
+"All this change is taking place." "AI is quietly shifting people's habits and interests." What came first, the East India 
+Company or the British Empire? I have to ask, cuz this guy really looks like he works for modern-day East India Company. 
+Very informative post..For a pleb fool.  
+
+---------------------------------------------------------------------------------------------------------------------------------
+
+![alt text](images/Screenshot_2026-02-23_075239.png)  
+
+Another post demonstrating how broke the industry is. Who the f*** is this guy again? Grandpa, you might want to f*** off and 
+quit your job. Someone else needs your job more than you.  
+
+The old man's like "language...compilers"....what about it? Did you create something new or are you hogging up as much of the 
+tech welfare capital as possible?  
+
+I don't want to have to acknowledge this kind of bulls***. But truly...do people like him not see how untimely all this 
+tech innovation and financial compensation is?  
+
+---------------------------------------------------------------------------------------------------------------------------------

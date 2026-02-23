@@ -345,7 +345,7 @@ classism?
 
 I appreciate the profession of teaching. But I'm also not afraid to voice my doubts on the sanctity of the teacher-student 
 relationship. If married people can cheat on each other...if murder is illegal only when the courts rule the killing as 
-such... I don't believe in default sanctity or default integrity can be universally guaranteed.  
+such... I don't believe default sanctity or default integrity can be universally guaranteed.  
 
 When I read posts such as these, I cannot help but feel a sense of doom for the economic hierarchies going on. Sure... 
 I'll let disadvantaged people work that white-collar job because they need it more than me. 

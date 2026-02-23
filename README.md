@@ -295,10 +295,45 @@ past week now.
 
 See...industry in the West is looking like it's done for.  
 
-And thank you, Natalie de Groot, for being another reminder for why I always take the middle path between between a misogynist 
+And thank you, Natalie de Groot, for being another reminder for why I always take the middle path between being a misogynist 
 and a prince. 
 
 Constricting economic policies, militarism, religion... 
 
 ---------------------------------------------------------------------------------------------------------------------------------
+
+![alt text](images/Screenshot_2026-02-23_094357.png) 
+
+![alt text](images/Screenshot_2026-02-23_094428.png)  
+
+It's complicated with language. Or it can be complicated by language. The point with the pushback against LLMs is the language 
+cannot be a full delivery system. Language is an intangible vector.  
+
+I'm not like one of those Western psychologists that basically pretend like they're purely curing the world but truthfully be 
+assets to war machines, such as espionage, social engineering, that kind of thing.  
+
+So when this guy goes to say "empathy...people that don't like language lack empathy, therefore psychopaths", I had to respond 
+telling him about the "psychopath experiment", which is somewhat of a perversion of inquiries into morality. But come to think 
+of it, I can't seem to recall any Inquisition that didn't involve torture.  
+
+---------------------------------------------------------------------------------------------------------------------------------
+
+![alt text](images/Screenshot_2026-02-23_094643.png)  
+
+Cliche. Cliche. Cliche. Touche. And cliche.  
+
+The guy is like, "this great famous guy came up with this thing, but then humanity used it to create this gigantic cognitive 
+network, based on tokenized linguistic elements".  
+
+I don't know if he's a Luddite or an idealist. Or maybe he's a Hippie. Yeah. Yeah. He's a hippy protesting against the 
+industrial complex!  
+
+---------------------------------------------------------------------------------------------------------------------------------
+
+![alt text](images/Screenshot_2026-02-23_094729.png)  
+
+The commercial world is... irrational, let's put it that way. I don't know about the typical person, but I think it would 
+be very hard to sell something when a person doesn't own anything, and when a person cannot acquire capital through 
+delivering their services in teaching, medicine, law or whatever due to human competition based on...how should I say this...  
+classism?  
 

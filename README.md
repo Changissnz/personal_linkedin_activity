@@ -337,3 +337,20 @@ be very hard to sell something when a person doesn't own anything, and when a pe
 delivering their services in teaching, medicine, law or whatever due to human competition based on...how should I say this...  
 classism?  
 
+---------------------------------------------------------------------------------------------------------------------------------
+
+![alt text](images/Screenshot_2026-02-23_100332.png) 
+
+![alt text](images/Screenshot_2026-02-23_100714.png)
+
+I appreciate the profession of teaching. But I'm also not afraid to voice my doubts on the sanctity of the teacher-student 
+relationship. If married people can cheat on each other...if murder is illegal only when the courts rule the killing as 
+such... I don't believe in default sanctity or default integrity.  
+
+When I read posts such as these, I cannot help but feel a sense of doom for the economic hierarchies going on. Sure... 
+I'll let disadvantaged people work that white-collar job because they need it more than me. 
+
+It's like the concept of the empty cup. There is very little a charitable person would be able to give. Why must charity 
+and beggars be a thing if our leaders made proper use of human resources? Could it be that charities compensate for the 
+shortcomings of beggars, and these shortcomings are actually sins?  
+

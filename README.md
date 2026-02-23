@@ -372,7 +372,7 @@ flawed by the grace and judgment of God.
 
 This is why I've come to half-despise systems engineering. Systems engineering is not supposed to result in some 
 metaphysical loosey-goosey playground where deliberate "mistakes" happen, exploitation of the bad kind, and other 
-issues. These problems are certainly not two-sided in the effects of practice.  
+issues. These problems are certainly not always two-sided in the effects of practice.  
 
 The post kinda explains why the job market for computer science graduates has been complete trash. Complete utter 
 trash. Technically, anyone can devise a system. And now, I think of insane Romans when I think of systems engineering.  

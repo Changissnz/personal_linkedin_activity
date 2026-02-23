@@ -366,3 +366,22 @@ in the waiting line.
 I'm no longer stuck in a bind because I believe I see people for what they are...intelligent creatures but creatures 
 flawed by the grace and judgment of God.  
 
+---------------------------------------------------------------------------------------------------------------------------------
+
+![alt text](images/Screenshot_2026-02-23_113944.png)
+
+This is why I've come to half-despise systems engineering. Systems engineering is not supposed to result in some 
+metaphysical loosey-goosey playground where deliberate "mistakes" happen, exploitation of the bad kind, and other 
+issues. These problems are certainly not two-sided in the effects of practice.  
+
+The post kinda explains why the job market for computer science graduates has been complete trash. Complete utter 
+trash. Technically, anyone can devise a system. And now, I think of insane Romans when I think of systems engineering.  
+
+---------------------------------------------------------------------------------------------------------------------------------
+
+![alt text](images/Screenshot_2026-02-23_150924.png)  
+
+I didn't want to fearmonger with this guy, a professor at University of Virgina. But given the news and the circumstances 
+I was seeing, I had to be direct with him. I also wanted to say something from a cliche American action movie, with one 
+big theme being tacky and narrow-minded patriotism. 
+

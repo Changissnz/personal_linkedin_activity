@@ -263,3 +263,42 @@ I don't want to have to acknowledge this kind of bulls***. But truly...do people
 tech innovation and financial compensation is?  
 
 ---------------------------------------------------------------------------------------------------------------------------------
+
+![alt text](images/Screenshot_2026-02-23_090323.png)  
+
+Back in college, I would have been like "Cool guy, John McCarthy! He created some scientific tool. I f***ing love science." 
+Today, I take a look at this Jew with his post on John McCarthy, and it really makes me wonder. I don't have anything against 
+the Jewish people. There were some Jews back during my grade school that were kinda prideful on their scholastic achievements, 
+nothing wrong with that besides from ego.  
+
+Anyway, John McCarthy. Yeah. I don't know what to think of a man named John McCarthy that created something in 1958, during 
+the Cold War. McCarthyism, anyone? If s*** hits the roof, I just hope that people like him nowadays don't mistake me with 
+friendly fire. Yellow fever, red terror and all.  
+
+I'm not saying that loyalty is that much better among the Ching Chongs and Slavs. But you know... just putting these ideas 
+out there. 
+
+---------------------------------------------------------------------------------------------------------------------------------
+
+![alt text](images/Screenshot_2026-02-23_091308.png) 
+
+![alt text](images/Screenshot_2026-02-23_091344.png)  
+
+Check this one out. A what... Hispanic Turk Euro woman? Her profile says "AI AI". That's not annoying whatsoever. She says 
+she went to Daytona State College; that's in Florida, USA. She says she lives in the Netherlands now.  
+
+I'm not trying to make any assumptions here. But I wonder how someone like her is just going to have a career in "AI AI" over 
+in the Netherlands. Is she living in a flat in the red light district?  
+
+And then her post on how A.I. messed up on the car wash problem. That has been the pop culture story about AI for about the 
+past week now. 
+
+See...industry in the West is looking like it's done for.  
+
+And thank you, Natalie de Groot, for being another reminder for why I always take the middle path between between a misogynist 
+and a prince. 
+
+Constricting economic policies, militarism, religion... 
+
+---------------------------------------------------------------------------------------------------------------------------------
+

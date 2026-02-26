@@ -3,8 +3,8 @@ A project where I share opinions on some of the activity I see on LinkedIn.
 
 ## End date: 2/26/2026 
 
-I guess I could go on and share more of the LinkedIn activity I see. But I just don't feel motivated to. I felt kinda 
-weird providing this commentary for these LinkedIn posts.  
+I guess I could go on and share more and comment on the LinkedIn activity I see. But I just don't feel motivated to. I felt kinda 
+weird providing commentary for these LinkedIn posts.  
 :smiley: :smiley: :sweat_smile:  :sweat_smile:  :joy:  :joy:
 
 ----------------------------------------------------------------------------------------------------------------------------------
